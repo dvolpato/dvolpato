@@ -5,8 +5,9 @@
 
 - Some hobbies:
   - 🥩 Make barbecues (Brazilian "churrasco")
-  - 🎹🎸 Play piano and guitar
-  - 🥋 Karateka
+  - 🎹🎸 Play the piano and guitar
+  - 🥋 Karate - Shitoryu 🟣 belt
+  - ⚜️ Scout Leader at [Escoteiros do Brasil](https://www.escoteiros.org.br/)
 
 <!--
 Here are some ideas to get you started:

@@ -1,6 +1,6 @@
 # Hi there 👋, I'm Volpato
 
-- 💼 Software Architect / Software Engineer at @3778
+- 💼 Software Architect / Software Engineer
 - 🏠 Working remotely (home office) since 2017
 
 - Some hobbies:
